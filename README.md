@@ -1,4 +1,4 @@
-# 上海润日本
+# 上海润日本 ShangHai Run Japan
 
 
 上海居民润日本交流群
