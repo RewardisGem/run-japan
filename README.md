@@ -1,7 +1,7 @@
-# 上海润日本 ShangHai Run Japan
+# 上海润日本 Shanghai Run Japan
 
 
-上海居民润日本交流群
+上海居民润日本交流群  
 
 
 交流群加入要求：
@@ -17,7 +17,7 @@
 
 如需加群，可以微信扫码加好友后拉群
 
-![AV](https://user-images.githubusercontent.com/6459912/177708457-4d4f836f-047d-413b-8ef0-b9b441eed861.jpg)
+![RUN](https://user-images.githubusercontent.com/6459912/177708457-4d4f836f-047d-413b-8ef0-b9b441eed861.jpg)
 
 
 
