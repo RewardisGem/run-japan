@@ -1,7 +1,7 @@
 # 上海润日本
 
 
-上海居民润日本交流
+上海居民润日本交流群
 
 
 交流群加入要求：
@@ -11,7 +11,10 @@
 - 关注生活，不讨论政治
 
 
-![WeChat Image_20220707143933](https://user-images.githubusercontent.com/6459912/177708457-4d4f836f-047d-413b-8ef0-b9b441eed861.jpg)
+
+如需加群，可以微信扫码加好友后拉群
+
+![AV](https://user-images.githubusercontent.com/6459912/177708457-4d4f836f-047d-413b-8ef0-b9b441eed861.jpg)
 
 
 
